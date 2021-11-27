@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlueTheFounder
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning More Coding
+- 💞️ I’m looking to collaborate on IDK
+- 📫 How to reach me blueee#9933
